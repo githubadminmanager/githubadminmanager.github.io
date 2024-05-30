@@ -1,1 +1,1 @@
-# githubadminmanager.github.io
+adams wabiste
